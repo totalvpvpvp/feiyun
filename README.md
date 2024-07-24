@@ -8,7 +8,7 @@
 
 解锁YouTube、Netflix、DisneyPlus、港澳台B站等流媒体。
 
-拥有新加坡和日本两个公益节点。1
+拥有新加坡和日本两个公益节点。11
 
 支持ChatGPT使用。
 
